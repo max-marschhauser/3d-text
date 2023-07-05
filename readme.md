@@ -1,1 +1,1 @@
-Code from Kevin Powel --> idea for future project
+Idea for future project
